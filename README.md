@@ -1,1 +1,1 @@
-# MvcOnlineTicariOtomasyon
+# MvcOnlineTicari
