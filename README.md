@@ -31,8 +31,8 @@ Bu projeyi geliştirirken öğrendiğim ve uyguladığım tüm bu konular sayesi
 
 YouTube : https://lnkd.in/dKBF_ETA
 
-[resim1](https://github.com/recepsamil/MvcOnlineTicariOtomasyon/blob/main/Mvc%20Online%20Ticcari%20Otomasyon/Ekran%20Al%C4%B1nt%C4%B1s%C4%B1.png?raw=true)
-[resim1](https://github.com/recepsamil/MvcOnlineTicariOtomasyon/blob/main/Mvc%20Online%20Ticcari%20Otomasyon/Ekran%20Al%C4%B1nt%C4%B1s%C4%B14.PNG?raw=true)
+![resim1](https://github.com/recepsamil/MvcOnlineTicariOtomasyon/blob/main/Mvc%20Online%20Ticcari%20Otomasyon/Ekran%20Al%C4%B1nt%C4%B1s%C4%B1.png?raw=true)
+![resim1](https://github.com/recepsamil/MvcOnlineTicariOtomasyon/blob/main/Mvc%20Online%20Ticcari%20Otomasyon/Ekran%20Al%C4%B1nt%C4%B1s%C4%B14.PNG?raw=true)
 [resim1]()
 [resim1]()
 [resim1]()
