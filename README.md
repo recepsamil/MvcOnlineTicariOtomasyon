@@ -39,5 +39,5 @@ YouTube : https://lnkd.in/dKBF_ETA
 ![resim1](https://media.licdn.com/dms/image/v2/D4D22AQHr8S5YNtlh6w/feedshare-shrink_2048_1536/feedshare-shrink_2048_1536/0/1730491598011?e=1733356800&v=beta&t=mJ5i8Bla9is-LuvrGSAHDkyftmhgve37y_KIrFC9fyg)
 ![resim1](https://media.licdn.com/dms/image/v2/D4D22AQH8SMVyiHifrQ/feedshare-shrink_2048_1536/feedshare-shrink_2048_1536/0/1730491597919?e=1733356800&v=beta&t=YsRxa5SgoexofKPzEBYZemP--HXDFBUcj6a43V72vDw)
 ![resim1](https://media.licdn.com/dms/image/v2/D4D22AQGd8tbiN7UZCQ/feedshare-shrink_2048_1536/feedshare-shrink_2048_1536/0/1730491598029?e=1733356800&v=beta&t=2nejvb7R7n8MQ4U4YE_GEmu7YztPyyaQ8hUKoRF6PVw)
-![resim1]()
-![resim1]()
+![resim1](https://media.licdn.com/dms/image/v2/D4D22AQG2nCZu3D44EA/feedshare-shrink_2048_1536/feedshare-shrink_2048_1536/0/1730491592801?e=1733356800&v=beta&t=knwWE_MEqizoqg-Fg5YtziZKxsU3rjy0ZBpihvB_xhA)
+![resim1](https://media.licdn.com/dms/image/v2/D4D22AQFHKIqZDDsE_Q/feedshare-shrink_2048_1536/feedshare-shrink_2048_1536/0/1730491593731?e=1733356800&v=beta&t=ijzfhI_1ZC20vv1gjN0FIPRwj3ugs5ka3kMSIhuSnVw)
